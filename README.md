@@ -23,3 +23,8 @@ On 3rd day of college,we all visited to the auditorium to attend a very interest
 
 # Day 4 (4th August)
 I was very excited for 4th day because it was my first ever lecture in college,there I realised that I am in college now.Our first lecture was of P2P where basics of C++ were taught by our seniors.They were very good in their work,they took doubt of every student to make them understand properly.After P2P lecture,we had lecture of BEEE where Prof.Harminder Kaur educated us about the subject basics and took introductions from all of us.After our lectures, we were taken to auditorium where we attened Dr.Priya Darshni mam's 2nd lecture on UHV.It was an inspiring and educational session of her.We learned how to balance physical and mental health,to be kind and to respect others feelings and opinions.After this,Causmic Club members took over the event where they introduced us to their club,their chief members, sponsors and events they have arranged till now.They  suggested us to be a part of this club.Then we were given important information about laptops and which one to buy if we are planning to do so.Some seniors also presented their singing talent among us which was fabulous.With this, our 4th day was over...😉
+
+## DAY 5(5th August)
+On 5th day, my section was called for photograph for id card formation.Until my turn was there,i visited the central library of College which was well built and very good atmosphere was there.The sir who was clicking the photo for id was also of very kind nature and he guided us very sweetly and nicely.With this our 5th day was over..
+
+## DAY 6(6TH August)
